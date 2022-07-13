@@ -17,3 +17,16 @@ what we perfomance in our calls:
 💪Play 69
 💪wet undewear with water 
 💪suck dick  (you choose)
+💪blindfold and suck dick
+💪suck nipples with chocolate
+💪play with ice on the body 
+💪sexy dance wearing thong
+💪finger in ass(3 min) 
+💪rimm ass (you choose) 
+💪massage in the ass with oil
+💪kiss feet (you choose
+💪oil on the dick
+💪play with saliva mouth to mouth
+💪erotic show blindfold with handcuffs
+💪fuck show 
+💪cum show
